@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hl425.pages.dev/">揭秘黑料社</a>
 
-点击访问：<a href="https://hl433.pages.dev/">每日分享最新黑料吃瓜资源</a>
+点击访问：<a href="https://hl433.pages.dev/">每日分享最新黑料吃瓜资源最新</a>
 
 点击访问：<a href="https://hl426.pages.dev/">国内吃瓜爆料黑料社曝门</a>
 
@@ -65,4 +65,4 @@ Telegram频道传送门：整合多类型热门 Telegram 频道，覆盖资讯�
 
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ddd20250626/ddd12）</span>
